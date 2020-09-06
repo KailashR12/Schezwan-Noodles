@@ -1,0 +1,1 @@
+This recipe is a mix of flavor and spicy. It just melts in your mouth and is spicy for that extra kick;
